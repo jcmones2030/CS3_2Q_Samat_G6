@@ -4,6 +4,6 @@
 
 #20 (De Dios): Hello, I am Denise :) I like watching shows, collecting manga, and reading books. Im geekier than you’d think
 
-#26 (Pangilinan): i like apples and bananas. Hi my name is Nico, short for Darwin. blub blub blub *Ayo teach. What for dindin*
+#26 (Pangilinan): i like apples and bananas. Hi my name is Nico, short for Darwin. 
 
 #27 (Sadorra): im chloe and i like collecting trinkets, books, and albums
