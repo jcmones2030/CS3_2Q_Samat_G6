@@ -1,6 +1,7 @@
 # CS3_2Q_Samat_G6
 
-#10
+#10 - Hi! My name is Jacques Vincent Dion C. Mones from 9 - Samat. You can just call me Vince. My favorite hobbies are jogging, playing volleyball and badminton (for fun), and writing poems in my Notes app. I am definitely not the best in Computer Science, however I am eager to learn more about topics relating to this. 
+
 
 #20
 
