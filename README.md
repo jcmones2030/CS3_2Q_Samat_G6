@@ -6,4 +6,4 @@
 
 #26 (Pangilinan): i like apples and bananas. Hi my name is Nico, short for Darwin. blub blub blub *Ayo teach. What for dindin*
 
-#27 (Sadorra):
+#27 (Sadorra): im chloe and i like collecting trinkets, books, and albums
